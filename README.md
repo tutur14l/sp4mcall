@@ -1,2 +1,3 @@
-hay bro😂🙏
-gwe lagi blajar coding 
+assalamualaikum wr wb
+
+jangan lupa tersenyum ☺️
